@@ -1,5 +1,5 @@
 
-This is a account I use for holding my social media information and other non-code related projects.
+This is an account I use for holding my social media information and other non-code related projects.
 
 
 
